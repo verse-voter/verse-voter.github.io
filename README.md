@@ -1,1 +1,0 @@
-# verse-voter.github.io
